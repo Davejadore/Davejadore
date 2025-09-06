@@ -19,12 +19,12 @@ Here are some ideas to get you started:
 ---
 
 ## 👨‍💻 What I Do
-- **IT Technical Support**
-- **Web Marketing**
-- **Social Media**
-- **Crypto Enthusiast**
-- **Music Producer**
-- **Sports Lover** (especially Beach Volleyball!)
+- **IT Technical Support** 💻
+- **Web Marketing** 🌐
+- **Social Media** 🔗
+- **Crypto Enthusiast** 🤑
+- **Music Producer** 🎼
+- **Sports Lover** (especially Beach Volleyball and Surf) 🏐🏄‍♂️
 
 ---
 
